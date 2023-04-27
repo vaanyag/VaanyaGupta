@@ -1,2 +1,0 @@
-# VaanyaGupta
-Portfoilo
